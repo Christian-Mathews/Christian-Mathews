@@ -5,7 +5,7 @@
 - 📫 How to reach me Twitter.com/Ctrig_SOl
 -   @christian.mathewsweb@gmail.com
 
-About me: I am currently a self taught developer. I have been utilizing online resources and have created a unique roadmap to help me progress and broaded my depth
+About me: I am currently a self taught developer. I have been utilizing online resources and have created a unique roadmap to help me progress and broaden my depth
 of perspective within the development field. I look forward to having the opportunity to collab with you all and learn in the process.
 
 
